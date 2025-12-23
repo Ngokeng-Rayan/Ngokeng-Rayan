@@ -89,7 +89,7 @@ I enjoy writing clean, maintainable code and exploring creative ways to solve pr
 ### 📬 Contact Me  
 
 📧 **Email:** [rayanngokeng1@gmail.com](mailto:rayanngokeng1@gmail.com)  
-💼 **LinkedIn:** [linkedin.com/in/rayan-ngokeng](https://www.linkedin.com/in/rayan-ngokeng)  
+💼 **LinkedIn:** [linkedin.com/in/ngokengrayan](https://www.linkedin.com/in/ngokengrayan/)  
 📱 **Phone:** +237 671 655 485 / +237 687 527 629  
 
 ---
